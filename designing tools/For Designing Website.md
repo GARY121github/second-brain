@@ -1,0 +1,5 @@
+-  http://colormind.io
+- https://www.vecto3d.xyz
+- https://www.gradients.fm/freebies
+- https://synthevisuals.gumroad.com
+- https://fontscale.joelfisher.me
